@@ -3,3 +3,4 @@
 3. Mariana Rechy @Marianarechy
 4. Julio Velazquez @Jvelm
 5. Araceli Romero @AraceliRomero
+6. Giovanni Gonzalez @GiovanniGlez
