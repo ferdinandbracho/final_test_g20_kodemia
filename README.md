@@ -4,3 +4,4 @@
 4. Julio Velazquez @Jvelm
 5. Araceli Romero @AraceliRomero
 6. Giovanni Gonzalez @GiovanniGlez
+7. Sandra Tapia @aysantosa
