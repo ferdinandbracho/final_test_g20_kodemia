@@ -6,3 +6,4 @@
 6. Giovanni Gonzalez @GiovanniGlez
 7. Sandra Tapia @aysantosa
 8. Marco Sanchez @MarcoSanTre
+9. Kelly Ramirez @kellyramirez
